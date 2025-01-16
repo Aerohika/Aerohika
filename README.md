@@ -8,8 +8,7 @@
 
 - 📫 How to reach me **aerohika@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1H6dV_Q4LVw_SJIa3o0lE5SQS4O1CTxtG/view?usp=drivesdk](https://drive.google.com/file/d/1H6dV_Q4LVw_SJIa3o0lE5SQS4O1CTxtG/view?usp=drivesdk)
-
+- 📄 Know about my experiences [https://drive.google.com/file/d/1HoQa8c0hvLnEMa-IzntuqMevRIb0ZQWg/view?usp=drivesdk]https://drive.google.com/file/d/1HoQa8c0hvLnEMa-IzntuqMevRIb0ZQWg/view?usp=drivesdk
 - ⚡ Fun fact **I am a ferocious learner**
 
 <h3 align="left">Connect with me:</h3>
